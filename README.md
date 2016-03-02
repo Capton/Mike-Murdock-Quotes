@@ -1,0 +1,1 @@
+# Mike-Murdock-Quotes
